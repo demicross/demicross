@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @demicross
+- 👀 I’m interested in many things but lets start with a few, digital marketing, football, weight lifting, running, skiing and now coding!
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on ways to connect and grow my circle
+- 📫 How to reach me @demicrosss on Instagram or demiacross@gmail.com on email
